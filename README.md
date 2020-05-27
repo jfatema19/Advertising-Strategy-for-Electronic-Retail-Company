@@ -1,1 +1,1 @@
-# Advertising-Strategy-for-Electronic-Retail-Company
+# Revenue-growth-Strategy-for-Electronic-Retail-Company
